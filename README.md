@@ -9,9 +9,7 @@ i (uzi) am specifically the host,
 so I'll be here most of the time
 
 DO NOT.... 
-do not call us a human! if you're
-close you can call us a person, 
-otherwise call us drones/drone
+do not call us a human nor a person,call us drones/drone
 unless specified otherwise
 
 do not INTERACT with us if you're a 
