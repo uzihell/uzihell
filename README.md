@@ -3,7 +3,7 @@
 
 👾 Hey I'm Uzi!!!! I'm part of fictionfolk (fictives, fictionkin, etc) and I'd like to be referred as Uzi Doorman .. most I'll explain is I'm plural :P
 
-I'm almost always sitting with my husband so if you see me see hi!!!
+I'm almost always sitting with my husband so if you see me say hi!!!
 I'm mostly friendly but IWC (Interact with Caution) + I do NOT roleplay
 
 THINGS I'm really not...fond of are Tutorial skins and Panic AU skins. 
