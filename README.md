@@ -1,3 +1,6 @@
+![Tumblr_l_28089163078366](https://github.com/user-attachments/assets/591161e5-25ab-46e9-afae-4ca02745b24b)
+(art by sunlit-mess on tumblr)
+
 ![Screenshot_20250113_174812](https://github.com/user-attachments/assets/c21a4fa1-63f0-4faf-b578-c1d77d5795d0)
 ↑ me & bug irl :3
 
