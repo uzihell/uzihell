@@ -11,6 +11,7 @@ im always sitting alone or withmy husband<3 uhmm feel free to interact sorry if 
 okay ts isthe part where i get called delusional!!!!!!!!! dni if you insult my interests im really defensive about them
 
 dni if you're weird about md characters idc if you're a huge v or n or uzi simp or something getaway from me FREAK. DIE. /neg
+(on the topic of being weird about md, dni if you like the panic au)
 
 dni if you copy ponytown skins idc who you are i wqnt you dead 
 
