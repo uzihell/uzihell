@@ -1,16 +1,21 @@
-![Tumblr_l_28089163078366](https://github.com/user-attachments/assets/591161e5-25ab-46e9-afae-4ca02745b24b)
-(art by sunlit-mess on tumblr)
-
 ![Screenshot_20250113_174812](https://github.com/user-attachments/assets/c21a4fa1-63f0-4faf-b578-c1d77d5795d0)
 ↑ me & bug irl :3
 
-👾 Hey I'm Uzi!!!! I'm part of fictionfolk (fictives, fictionkin, etc) and I'd like to be referred as Uzi Doorman .. most I'll explain is I'm plural :P
+👾 hey im uzi or p. p can stand for pip/phillip or painter !!?!!?!!?!? just call me whatever im. evil. okay. i use he/him btw dont callme a she ill execute you.
 
-I'm almost always sitting with my husband so if you see me say hi!!!
-I'm mostly friendly but IWC (Interact with Caution) + I do NOT roleplay, it doesn't matter if my pony is a cosplay, most of the characters are dear to me
+i like uhhmm murder drones, hellpark, one wheat mark...a lot of stuff ok. those are the main things.my favorite music artist or band or whatever is MSI!!!!
 
-THINGS I'm really not...fond of are Tutorial skins and Panic AU skins. 
+im always sitting alone or withmy husband<3 uhmm feel free to interact sorry if youre my ponytown friend and i dont say hi im really anxious and socially awkward 
 
-If you use Tutorial skins I understand you're new and stuff but I'd rather see what an asshole would call a bad skin than the same eyesore over and over (+ most of them are uncredited)
 
-Panic AU strict DNI (Do not Interact). If you're a fictionfolk of Panic AU just,, don't interact a lot, sorry it makes me uncomfortable
+okay ts isthe part where i get called delusional!!!!!!!!! dni if you insult my interests im really defensive about them
+
+dni if you're weird about md characters idc if you're a huge v or n or uzi simp or something getaway from me FREAK. DIE. /neg
+
+dni if you copy ponytown skins idc who you are i wqnt you dead 
+
+dni if youre like. under 12 wtf are you doing😭😭
+
+
+![Tumblr_l_28089163078366](https://github.com/user-attachments/assets/591161e5-25ab-46e9-afae-4ca02745b24b)
+(art by sunlit-mess on tumblr)
