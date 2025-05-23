@@ -1,5 +1,7 @@
 hi im kris/uzi hii im 15 whatever im the real kris dreemurr and the real uzi doorman doubles dni.pls
 
+i dont play pony town anymore i play ashes town
+
 im otherkin and fictionkin and whatever uhhn ok cool ok lets be friends or something. friend forevr hug
 
 i like msi and a lot of things maybe ask me what i like at the moment oh and i like jimmy & lynz fuck off msi antis
